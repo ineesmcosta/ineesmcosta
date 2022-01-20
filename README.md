@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Currently studying Computer Science at NOVA School of Science and Technology
+I am currently studying Computer Science at NOVA School of Science and Technology
 
 #### Find me at: 
 
